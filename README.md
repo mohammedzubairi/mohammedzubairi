@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mohammedzubairi
 - 👀 I’m interested in web Development and hacking.
 - 🌱 I’m currently learning WebDev.
-- 💞️ I’m looking for advice.
+- 💞️ I’m looking for MacBook.
 - 📫 How to reach me alzubairi.limited@gmail.com
 - 😄 Pronouns: TenTenTen.
 - ⚡ Fun fact: You laugh of stress more than of happiness.
